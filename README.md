@@ -1,1 +1,1 @@
-# LuckyBlockStyleWars
+# Lucky Block Style Wars
