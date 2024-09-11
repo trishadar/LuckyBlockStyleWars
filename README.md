@@ -1,1 +1,1 @@
-# Lucky Block Style Wars
+# :high_heel: Lucky Block Style Wars :sandal:
